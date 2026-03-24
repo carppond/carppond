@@ -2,7 +2,7 @@
 
 ## 📮 How to Reach Me
 
-- Email: [Follow Up Here](objccf@gmail.com)
+- Email: [Follow Up Here](hello@gmail.com)
 
 <div align="center">
 	<br>
